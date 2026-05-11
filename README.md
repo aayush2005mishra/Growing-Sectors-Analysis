@@ -51,7 +51,7 @@ NITI Aayog – Services Sector Employment Analysis
 
 NASSCOM & MeitY – IT/ITeS employment reports
 
-National Industrial Classification (NIC) 2008 codes
+National Industrial Classification (NIC) 
 
 
 
